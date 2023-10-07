@@ -1,8 +1,7 @@
 REALITYYYYYY
 
 
-
-![Screenshot (82)](https://github.com/yasaswini2005/google_signup/assets/139364347/f2365c3e-d0e0-4479-8013-ea3205c10afb)
+![Screenshot (83)](https://github.com/yasaswini2005/google_signup/assets/139364347/3d80856c-c997-4186-94c1-966c2fc2506a)
 
 EXPECTEDDDDDDDDDD
 
